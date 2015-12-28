@@ -1,2 +1,0 @@
-jdeloach.github.io
-==================
